@@ -53,6 +53,34 @@ I think that many parts of this movie have a large amount of artistic merit. The
 6/10
 This is interesting, because in the movie the main character is unhinged, but not in the way that I would like to see Cage unhinged. I would normally like that in the silly direction where things are stupid unhinged that lead to the main character doing stuff that normal people would not do. But in this movie that mostly comes from the main character really never getting that he is probably the worst person in the world and that he is the machine that feeds the killing even if he is not the one pulling the trigger. I sota liked this but in the end it is not the type of Cage that I would prefer but it was not bad.
 
+## Primal
+Over all, this was a fun, yet silly movie where the acting was mostly pretty sub par and a bit over the top. Nic Cage has some seriously bad Phrases that he says in this which are very over acted. This movie has the person that plays Gene Grey from the Original XMen movies and Nic Cage. So that was pretty interesting. This is a movie that is something that I would have never dreamed up but that is what people who are crative are for. 
+
+The premis of this movie is that Nic Cage is a pocher/hunter of rare aminals and sells them to people who will pay a lot of money for them. While getting his latest big catch home, a while "Jag", as he says in the movie, home on a boat the NSA is trying to bring home one of their super killers that they unleased on the world to kill people and then went rouge when they told him to stop killing. With a boat full of Rare deadly animals and a super killer nothing could go wrong.
+
+The acting for the most part in this movie is pretty bad on all fronts from most of the people in the movie. But, yet, I still liked it. Also I learned that Venomous snakes will always search out people to kill. They would never just avoid peopole. They will ALWAYS find someone to bite because what other purpose could the venom that they have be used for. This is something that I will make sure to keep with me for if I were to see any venomous snakes in the future.
+
+**BEGIN SPOILERS**
+Basically, the super killer gets loose and frees all the animals on the boat. Cage is more focused on getting the animals back than the fact that a phycotic murder machine is loose. He is determined to get his Jag back so that he can have his big payday and then buy the house of his dreams and fish every day and then flaunt that in the face of his father who thought that he would amount to nothing. 
+
+While this is happening the super killer kills all the trained people on the boat as the movie goes on and Nic slowly becomes a better human through the infulence of the love interest in the movie. He slowly turns into someone that would like to help all the remaining people on the boat beat the bad guy and get off safely. This is the point in the movie where Cage gets to hunt the super killer and prove that he is the best hunter of all time! Hunting the most dangerous prey.... Super NSA Murder Machines.
+
+In the end Cage uses all the tricks that he uses to catch animals to drug the super killer so that he can beat him in MORTAL COMBAT.
+**END SPOILERS**
+
+### Enjoyability
+6/10
+I enjoyed this a bit. It is not a good movie, not at all, but it is a good bad movie. It is in that genera of movies where I think that they must have known that what they were making was not supposed to be good. But just different and somewhat enjoyable. I think that if you like watching bad movies and can enjoy them being bad but not bad in the the wrong ways this is something that you could throw on, watch it one time and then say that you have seen it and move on with life.
+
+### Artistic Merit
+0/10
+Yeah, lets be real about this, There is nothing to be found here. The movie on a a ship in the ocean and the small amount of the movie that is not there is in the most generic bland jungle that you have ever seen. Even the fight scenes are pretty meh for the most part. 
+
+### The Cageness
+8/10
+This is one of those movies like Wally's Wonderland where Cage is playing a character to his near maximum Cageness. The main character of this is what I would think some people would think is over acted but it is Just Nic Cage being Nic Cage. He has tons of odd faces that he makes in this movie that sometimes really do not fit the things that are going on at the moment in time. He says a bunch of odd phrases in the movie that seem very over the top but again I feel like are something that Nic Cage must just really like saying. I am not sure. But in movies like this he really seems to like over acting these types of characters and I personally like watching these types of Cage movies.
+
 ## What is next?
 * Season of the Witch?
-* Primal?
+* National Treasure? 
+* What else?
