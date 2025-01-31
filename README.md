@@ -80,6 +80,13 @@ Yeah, lets be real about this, There is nothing to be found here. The movie on a
 This is one of those movies like Wally's Wonderland where Cage is playing a character to his near maximum Cageness. The main character of this is what I would think some people would think is over acted but it is Just Nic Cage being Nic Cage. He has tons of odd faces that he makes in this movie that sometimes really do not fit the things that are going on at the moment in time. He says a bunch of odd phrases in the movie that seem very over the top but again I feel like are something that Nic Cage must just really like saying. I am not sure. But in movies like this he really seems to like over acting these types of characters and I personally like watching these types of Cage movies.
 
 ## What is next?
+* Machstick Men
+* The Unbearable Weight of Massive Talent
+* National Treasure
+* Renfield
+* Done in 60 Seconds
 * Season of the Witch?
-* National Treasure? 
+* Face Off?
+* Con Air
+* The Rock
 * What else?
