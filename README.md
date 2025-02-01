@@ -79,10 +79,30 @@ Yeah, lets be real about this, There is nothing to be found here. The movie on a
 ### The Cageness - 8/10
 This is one of those movies like Wally's Wonderland where Cage is playing a character to his near maximum Cageness. The main character of this is what I would think some people would think is over acted but it is Just Nic Cage being Nic Cage. He has tons of odd faces that he makes in this movie that sometimes really do not fit the things that are going on at the moment in time. He says a bunch of odd phrases in the movie that seem very over the top but again I feel like are something that Nic Cage must just really like saying. I am not sure. But in movies like this he really seems to like over acting these types of characters and I personally like watching these types of Cage movies.
 
+## National Treasure
+
+I would assume that everyone that is about to read this has seen this movie but if that is not the case I would recommend that you go watch it before you read this. I will not spoil much but I think that this movie is actually really great and holds a special place in the history of all the crazy conspiracy theory people, or it must have in some way influenced them. In watching this I am convinced that the person/people who wrote this must love looking at conspiracy theories but know how much bullshit they are. I am likel wrong about this but I feel like you could not craft something like this without being a little conspiracy theory crazy.
+
+The premis of this movie is that he worlds most consumed family got this thing from one of the founding father that told them the key to finding the biggest treasure that has ever existed. And this family has spent their whole lives over multiple generations trying to find it with what would seem to be little luck. Bengemin Franklen Gates (Nic Cage) finds out about this from his Grandfather and that sets him on the course to find the National Treasure that has been building over the course of all of time. 
+
+The movie mostly goes through the action adventure process of finding this treasure and is pretty good about it. The main character is some wizard about tying pieces of information together that could mean 1 of 1000 thing but always figures out what they actually mean on like the first or second thought that he has about them. Making it look like he could absouletly just have gone onto Jepordy and made his fourtune instead of going through the process that he is right now. That being said, there is something wonderful about the way that they make this in the movie because this only really bothers me after the fact in thinking about it. But, while watching the movie it did not bother me at all. It is done in some way that makes it not completely glaring, to me at least, that it is complete and utter nonsense that they seem to be pulling out of his hat.
+
+Final note, I think that one of the best parts about this movie is that when they are first dealing with the Declaration of Independcnce they are super careful and making sure to not touch it with their hands, but as the movie goes on they just get less and less careful to the point where I think that the people making the movie where thinking, "Man, this having to be careful shit with this thing is killing the flow of the movie." and likely just stopped caring about being careful at all. To the point where they just unroll and touch it with their hands all the fucking time during the middle and end of this movie.
+
+### Enjoyability - 9/10
+I love this movie. I thought that going back and watching it now many years later would have made me think less of this but this movie is really fun, super engaging and keeps your attention on the movie at all times. It moves fast and never really slows down. I think that is what makes this move feel so good to watch. Even at two hours it went by really fast when watching.
+
+### Artistic Merit - 8/10
+I think that whoever made this had a lot of fun doing all the things that they did in it because a lot of the things in the movie feel like they are very artistic but not in the cinema why but more in the crafting of the sets of the movie and all the other things about it. I think that it is really well put together. A lot of the sets and the thing going on take place in existing places but the places that they come up with inside of some of those places are fun and pretty in their own ways.
+
+### The Cageness - 9/10
+I think that Cage is very Cage in this movie and it is not in the way that some of his movie are where he is just an insane madman with super over the top acting. In this he is over the top but the acting is really good. The main character just fits him well. I think that evne when Cage is being crazy, Like saying, "We are going to steal the Declaration of Independcnce" you just can't help but be like, YEAH, fucking steal that shit! You got this! 
+
+I also think that you get a lot of great Crazy Cage looks in this movie but they are coming from a place where he is not insane but he has some insane idea and he is going to act on it and nothing can stop him.
+
 ## What is next?
 * Machstick Men
 * The Unbearable Weight of Massive Talent
-* National Treasure
 * Renfield
 * Done in 60 Seconds
 * Season of the Witch?
